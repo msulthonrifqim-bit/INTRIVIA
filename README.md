@@ -10,3 +10,6 @@ INTRIVIA menjadi salah satu tempat saya mengetahui banyak hal seperti cara membu
 
 ## Kesan Pesan Cluster 4 Sejauh Ini
 Cluster 4 adalah sebuah kelompok dimana saya bisa mendapatkan insight dari teman se-cluster
+
+## Harapan Kuliah
+Menjadi Mahasiswa yang memiliki kompetensi untuk dunia kerja di masa depan
